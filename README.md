@@ -48,5 +48,3 @@ Groussac o Borges, miro este querido
 mundo que se deforma y que se apaga 
 en una pálida ceniza vaga 
 que se parece al sueño y al olvido.
-
-Lee todo en: Poema de los dones - Poemas de Jorge Luis Borges http://www.poemas-del-alma.com/poema-de-los-dones.htm#ixzz3lORIq0KN
